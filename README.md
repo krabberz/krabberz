@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @krabberz
+- 👋 Hi, I’m @krabbbbz
 - 👀 I’m interested in flags
 - 🌱 I’m currently learning dutch
 - 🎮 I’m making a game
